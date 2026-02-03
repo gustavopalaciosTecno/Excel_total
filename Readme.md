@@ -1,5 +1,5 @@
 EXCEL TOTAL:
 Excel total es un curso lanzado por Federico Garay en donde explaya de forma elocuente la  funcionalidad que tiene esta herramienta ofimática. 
 El recorrido del curso es practicar excel una vez por día, de esa forma el estudiante irá asimilando poco a poco los conceptos que se requiere para dominar esta herramienta.
-Son 39 días de puro excel en donde aprenderá algo diferente e interesante que promete sacar el mejor provecho.
-El curso es lo más práctico posible y con un nivel de detalle no visto en otros cursos similares.
+Son 39 días de puro excel en donde aprenderás algo diferente e interesante que promete sacar el mejor provecho y "empujarte" hacia un nivel profesional. No te desanimes, el curso es extenso pero amena a la vez y la forma pedagógica del instructor es exquisita y admirable, solo tenés que elegir un plan de estudio e ir profundiznado de a poco cada tema.
+Está demas decir que el curso es lo más práctico posible y con un nivel de detalle nunca visto en otros cursos de similares caracterísitcas, pero vale la pena cada clase.
